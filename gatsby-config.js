@@ -9,7 +9,7 @@
 module.exports = {
   siteMetadata: {
     title: 'Đại Dương Thiên Đường',
-    siteUrl: 'https://onenextcloud.club',
+    siteUrl: 'https://pulsetrips.com',
     rssFeedTitle: 'thienduongbienxanh',
     rssFeedDescription: 'Đoàn Bình và Đại Dương Thiên Đường',
   },
