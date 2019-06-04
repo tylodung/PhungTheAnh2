@@ -1,7 +1,7 @@
 ---
-title: Phú Quốc Nơi tổ chức các sự kiện Năm du lịch quốc gia 2016
+title: Nơi tổ chức các sự kiện Năm du lịch quốc gia
 layout: post
-author: [steveluscher]
+author: [doanbinh]
 ---
 
 Năm Du lịch quốc gia 2016 có tên gọi là “Năm Du lịch quốc gia 2016 – Phú Quốc – Đồng bằng sông Cửu Long” (Visit Vietnam Year 2016 – Phu Quoc – Mekong Delta) với chủ đề: “Khám phá đất phương Nam” (Explore the Southern Land). Đây là sự kiện có quy mô cấp quốc gia chủ yếu được tổ chức tại tỉnh Kiên Giang.
@@ -37,7 +37,7 @@ Ngoài ra đồng thời củng được diễn ra tại các địa phương kh
 
 ![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2016/01/phu-quoc-diem-den-nam-du-lich-2016.jpg "ten buc hinh")
 
-Sự tập trung phát triển du lịch Phú Quốc – Đồng bằng sông Cửu Long nhằm phát huy tiềm năng, lợi thế tài nguyên du lịch của địa phương để tập trung xây dựng, làm mới, đa dạng hóa sản phẩm du lịch, trong đó chú trọng các sản phẩm du lịch đặc thù của địa phương và mở rộng thị trường, triển khai các tour, tuyến du lịch, làm nổi bật các sản phẩm du lịch mới. nam du lich phu quoc 2016
+Sự tập trung phát triển du lịch Phú Quốc – Đồng bằng sông Cửu Long nhằm phát huy tiềm năng, lợi thế tài nguyên du lịch của địa phương để tập trung xây dựng, làm mới, đa dạng hóa sản phẩm du lịch, trong đó chú trọng các sản phẩm du lịch đặc thù của địa phương và mở rộng thị trường, triển khai các tour, tuyến du lịch, làm nổi bật các sản phẩm du lịch mới.
 
 Các chính sách của Nhà nước cũng một phần hỗ trợ thúc đẩy du lịch tại Phú Quốc. Nơi đây du khách quốc tế sẽ được miễn visa trong 30 ngày, miễn thuế VAT tại sân bay, các doanh nghiệp và người nước ngoài đến đầu tư đều nhận được nhiều ưu đãi hấp dẫn. Đây cũng là nơi đầu tiên và duy nhất của Việt Nam thực hiện miễn visa cho khách nước ngoài.
 

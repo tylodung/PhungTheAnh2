@@ -1,7 +1,7 @@
 ---
-title: Kinh nghiệm chọn tour du lịch Phú Quốc tết Mậu Tuất 2018
+title: Kinh nghiệm chọn tour du lịch Phú Quốc
 layout: post
-author: [vjeux]
+author: [doanbinh]
 ---
 
 Bạn yêu thích vẻ đẹp hoang sơ, quyến rũ của đảo Phú Quốc ? Và dịp tết Mậu Tuất 2018 này bạn có kế hoạch cho kỳ nghỉ tại đảo ngọc? Bạn chưa biết nên chọn tour như thế nào phù hợp? Đừng lo lắng? Dưới đây sẽ là kinh nghiệm chọn tour du lịch Phú Quốc để bạn có thể tham khảo và có lựa chọn phù hợp.
@@ -11,8 +11,6 @@ Bạn yêu thích vẻ đẹp hoang sơ, quyến rũ của đảo Phú Quốc ? 
 **Dựa vào phương tiện: tàu xe hoặc máy bay**
 
 Nếu muốn tiết kiệm thời gian, bạn có thể chọn di chuyển bằng máy bay. 3 nơi có thể bay thẳng tới sân bay Phú Quốc đó là Hà Nội( sân bay Nội Bài), Thành Phố Hồ Chí Minh(sân bay Tân Sân Nhất) và Cần Thơ(sân bay Cần Thơ). Bạn sẽ có nhiều thời gian tham quan, khám phá đảo Phú Quốc nhiều hơn.
-
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2017/10/%C4%91i-t%C3%A0u.jpg "ten buc hinh")
 
 Nếu muốn tiết kiệm chi phí, bạn có thể di chuyển bằng tàu xe đến đảo Phú Quốc. Có thể đi nhà xe Mai Linh hoặc Phương Trang. Và nên chọn loại ghế giường nằm để đảm bảo cho chuyến đi đường dài thoải mái nhất.
 

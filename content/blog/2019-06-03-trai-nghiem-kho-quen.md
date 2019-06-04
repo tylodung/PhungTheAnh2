@@ -1,16 +1,18 @@
 ---
-title: Những trải nghiệm khó quên khi đến Phú Quốc dịp Tết Mậu Tuất 2018
+title: Những trải nghiệm khó quên khi đến Phú Quốc dịp Tết
 layout: post
-author: [matthewjohnston4]
+author: [doanbinh]
 ---
 
-Phú Quốc – hòn đảo du lịch lớn nhất Việt Nam, thuộc huyện Phú Quốc, tỉnh Kiên Giang. Nơi đây có nhiều địa điểm tham quan và nên ẩm thực vô cùng hấp dẫn. Phú Quốc có nhiều bãi biển đẹp trải dài từ phía bắc đến phía nam, có 99 ngọn núi đồi và dãy rừng nguyên sinh với hệ động thực vật phong phú.
+Phú Quốc – hòn đảo du lịch lớn nhất Việt Nam, thuộc huyện Phú Quốc, tỉnh Kiên Giang. Nơi đây có nhiều địa điểm tham quan và nên ẩm thực vô cùng hấp dẫn. 
 
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2016/12/anh02.jpg "ten buc hinh")
+Phú Quốc có nhiều bãi biển đẹp trải dài từ phía bắc đến phía nam, có 99 ngọn núi đồi và dãy rừng nguyên sinh với hệ động thực vật phong phú.
+
+![ten buc hinh](http://timvere.vn/blog/wp-content/uploads/2016/12/dang-ky-tour-du-lich-tu-som.jpg "ten buc hinh")
 
 Đảo Phú Quốc là nơi lý tưởng cho các hoạt động câu cá lặn ngắm san hô ngắm những rạn san hô đa dạng sắc màu tại hòn Thơm của Mũi Gành Dầu; câu mực ngắm hoàng hôn tại ngư trường, xuyên rừng nguyên sinh khám phá suối Đá Bàn. Du khách sẽ được tắm biển dưới làn nước trong mát, xanh biếc được tắm nắng trên những bãi cát trắng mịn dài trên bãi Sao, bãi Trường, bãi Dài, bãi Khem, khám phá đảo hoang đều là những trải nghiệm thú vị không nên bỏ qua khi đi du xuân tại Phú Quốc vào dịp tết Mậu Tuất 2018.
 
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2016/12/anh03.jpg "ten buc hinh")
+![ten buc hinh](https://tourismdanang.com/wp-content/uploads/2017/04/cu-lao-cham-2.jpg "ten buc hinh")
 
 Thưởng thức hải sản tươi ngon khi đi du lịch Phú Quốc dịp tết Đinh Dậu 2017 cũng là một trải nghiệm bạn sẽ không thể quên trong đời,  nơi đây có rất nhiều loại hải sản khác nhau như: Tôm hùm rang muối, tôm tích luộc chấm muối ớt với vị ngọt thanh của tôm tích kết hợp với muối ớt đặc trưng Phú Quốc còn gì bằng. Những con mực với một bụng đầy trứng được nướng vàng ươm trên bếp than đỏ rực với hương thơm không thể cưỡng lại được. Cá mú, cá sòng được bọc qua một lớp lá chuối hay giấy bạc nướng trên bếp lửa hồng ăn kèm với nước mắm Phú Quốc không một du khách nào có thể bỏ qua.
 

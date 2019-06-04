@@ -1,11 +1,13 @@
 ---
 title: Tết đi Phú Quốc ghé Dinh Cậu cầu tài lộc
-author: [sophiebits]
+author: [doanbinh]
 ---
 
-Tết đến xuân về là dịp mọi người trong gia đình sum vầy hạnh phúc bên nhau. Mọi cùng nhau đi sắm Tết, đi lễ chùa cầu cho mọi điều không vui trong năm cũ qua đi và mong cho năm mới an lành, vạn sự như ý. Đầu năm mới người ta thường tìm về những nơi linh thiêng để cầu mong mưa thuận gió hòa, gửi gắm mong ước khỏe mạnh, mọi sự đều tốt đẹp, bình an trong năm mới là một điều không thể thiếu trong dịp Tết đến xuân về. Và nó trở thành một nét đẹp văn hóa của cả dân tộc.
+Tết đến xuân về là dịp mọi người trong gia đình sum vầy hạnh phúc bên nhau. Mọi cùng nhau đi sắm Tết, đi lễ chùa cầu cho mọi điều không vui trong năm cũ qua đi và mong cho năm mới an lành, vạn sự như ý.
 
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2016/08/dinh-c%E1%BA%ADu-Ph%C3%BA-Qu%E1%BB%91c-4-768x510.jpg "ten buc hinh")
+Đầu năm mới người ta thường tìm về những nơi linh thiêng để cầu mong mưa thuận gió hòa, gửi gắm mong ước khỏe mạnh, mọi sự đều tốt đẹp, bình an trong năm mới là một điều không thể thiếu trong dịp Tết đến xuân về. Và nó trở thành một nét đẹp văn hóa của cả dân tộc.
+
+![ten buc hinh](http://www.opentour.vn/uploads/image/du%20l%E1%BB%8Bch%20ph%C3%BA%20qu%E1%BB%91c/du-lich-phu-quoc-dinh-cau.jpg "ten buc hinh")
 
 Hòa vào dòng người đi lễ, mỗi người trong chúng ta sẽ cảm nhận được sự giao hòa của trời – đất. Mùi hương thoang thoảng cùng sắc màu rực rỡ của hoa, của ánh đèn, nến tràn ngập khắp nơi ở chốn linh thiêng sẽ làm cho lòng người trở nên nhẹ nhàng, thanh thản. Tết Đinh Dậu 2017 này bạn cùng gia đình sẽ đi đâu cầu an? Một lựa chọn hấp dẫn cho bạn là hãy đến với hòn đảo Phú Quốc xinh đẹp.
 

@@ -1,9 +1,9 @@
 ---
-title: Ngắm nhìn biệt thự 15 tỷ lung linh trước biển Phú Quốc của danh hài Trường Giang
-author: [sophiebits]
+title: Biệt thự 15 tỷ lung linh trước biển Phú Quốc của danh hài Trường Giang
+author: [doanbinh]
 ---
 
-Phú Quốc, hòn đảo xinh đẹp và quyến rũ, được ví như một thiên đường để sống, để nghỉ dưỡng và thư giãn. Và có thể do vậy mà Trường Giang – danh hài nổi tiếng Việt Nam đã lựa chọn nơi đây để sở hữu căn biệt thự riêng. Cùng ngắm nhìn biệt thự 15 tỷ lung linh trước biển Phú Quốc của danh hài “Mười khó” nhé!
+Phú Quốc, hòn đảo xinh đẹp và quyến rũ, được ví như một thiên đường để sống, để nghỉ dưỡng và thư giãn. Và có thể do vậy mà Trường Giang – danh hài nổi tiếng Việt Nam đã lựa chọn nơi đây để sở hữu căn biệt thự riêng.
 
 ![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2017/11/TOUR-DU-LICH-PHU-QUOC-768x432.jpg "ten buc hinh")
 

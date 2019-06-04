@@ -1,12 +1,12 @@
 ---
-title: Cùng trải nghiệm chuyến câu mực đêm trên biển Phú Quốc dịp Tết Đinh Dậu
+title: Cùng trải nghiệm chuyến câu mực đêm trên biển dịp Tết
 layout: post
 author: [steveluscher]
 ---
 
 Hòa mình vào không khí tưng bừng, náo nức của ngày tết cổ truyền, xuân về trên xứ đảo cũng rực rỡ sắc màu và tấp nập hơn thường ngày. Không khác Tết nguyên đán trên đất liền, tết nơi đây cũng có bánh tét, mâm cơm ngày tết, cũng súng sính trong những bộ quần áo mới, cùng nhau đi chúc tết ông bà hay lì xì đầu năm… Mọi người ai ai cũng háo hức vui xuân.
 
-![ten buc hinh](https://phuquocxanh.com/vi/wp-content/uploads/2016/09/12821627_1147812461926342_2268603800300049296_n.jpg "ten buc hinh")
+![ten buc hinh](https://bizweb.dktcdn.net/100/115/245/files/phu-quoc-5.jpg?v=1477623886334 "ten buc hinh")
 
 Phú Quốc đã và đang là điểm du lịch hấp dẫn thu hút rất đông du khách đến tham quan nên vào những ngày này lại càng tấp nập và nhộn nhịp hơn. Để chào đón du khách của mình người dân xứ đảo cũng nhộn nhịp tổ chức các phong trào, các lễ hội đầu năm.
 

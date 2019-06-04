@@ -1,12 +1,12 @@
 ---
-title: Chó Phú Quốc Huyền thoại và sự thật
-author: [zpao]
+title: Sự thật về Chó Phú Quốc huyền thoại
+author: [doanbinh]
 ---
 
 Chó Phú Quốc cực kỳ quý và đã từng gặt hái những thành công lừng lẫy trên đấu trường quốc tế. Đã hàng trăm năm trôi qua, chó Phú Quốc vẫn còn mang nhiều điều bí ẩn.
 
 
-<figure><iframe width="650" height="400" src="//www.youtube-nocookie.com/embed/fLN_hmX0j40" frameborder="0" allowfullscreen></iframe></figure>
+![ten buc hinh](https://i.ytimg.com/vi/fLN_hmX0j40/maxresdefault.jpg "ten buc hinh")
 
 Một dạo, có nhiều lời đồn, chó Phú Quốc đã bị tuyệt chủng. Nhưng nay, đã có nhiều trại nuôi chó Phú Quốc. Thậm chí, chó Phú Quốc còn được đưa vào danh sách bảo tồn gen.
 

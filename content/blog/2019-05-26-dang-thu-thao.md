@@ -1,6 +1,6 @@
 ---
 title: Đặng Thu Thảo rạng ngời đi event ở Phú Quốc
-author: [zpao]
+author: [doanbinh]
 ---
 
 Hoa hậu Việt Nam 2012 khoe nụ cười tỏa nắng trước ống kính.
