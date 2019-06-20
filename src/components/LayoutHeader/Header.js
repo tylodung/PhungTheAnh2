@@ -148,7 +148,7 @@ const Header = ({location}) => (
                 borderRadius: 15,
               },
             }}
-            href="https://onenextcloud.club/"
+            href="https://pulsetrips.com/"
             target="_blank"
             rel="noopener">
             Bakadono {version}
