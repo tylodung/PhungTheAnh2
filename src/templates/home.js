@@ -92,7 +92,7 @@ class Home extends Component {
                     fontSize: 60,
                   },
                 }}>
-                Cửa Biển Lớn Nhất Quả Đất
+                Đảo Ngọc
               </h1>
               <p
                 css={{
@@ -114,7 +114,7 @@ class Home extends Component {
                     fontSize: 30,
                   },
                 }}>
-                Đến Thiên Đàng Hưởng Lạc
+                Đến nơi bình yên..
               </p>
               <Flex
                 valign="center"
